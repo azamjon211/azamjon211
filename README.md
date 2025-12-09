@@ -1,7 +1,4 @@
 ## Assalomu alaykum!
-![rasm](A'zamjon.jpg)
-
-
 Abdulhamidov A'zamjon Anvarjon o'g'li 
 20.06.2003
 
